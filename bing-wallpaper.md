@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-10 | [Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.PurplePuffin_ROW7550028597_UHD.jpg) 
+
 2026-09-09 | [Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg) 
 
 2026-09-08 | ['Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)](https://cn.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg) 
