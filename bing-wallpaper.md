@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-12 | [Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ROW4972919500_UHD.jpg) 
+
 2026-09-11 | [Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg) 
 
 2026-09-10 | [Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.PurplePuffin_ROW7550028597_UHD.jpg) 
