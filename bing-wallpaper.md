@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-13 | [California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg) 
+
 2026-09-12 | [Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ROW4972919500_UHD.jpg) 
 
 2026-09-11 | [Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg) 
